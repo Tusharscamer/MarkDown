@@ -10,11 +10,5 @@ _yes it is_<br>
 Can you breath CO<sub>2</sub><br>
 E=MC<sup>2</sup><br>
 <ins> You don't have to be so mean , little brat </ins><br>
-> Do you want to head qoute ?.
-
-Thing you should aware of are :
-...
-you should not be so mean
-don't objectify the people
-Respect Others emotions
-...
+> Do you want to hear qoute ?.<br>
+Then approach me by my [Linkedin Profile](https://www.linkedin.com/in/tushar-dhakad-1b0678284/)
