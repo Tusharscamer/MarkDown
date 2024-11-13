@@ -12,3 +12,8 @@ E=MC<sup>2</sup><br>
 <ins> You don't have to be so mean , little brat </ins><br>
 > Do you want to hear qoute ?.<br>
 Then approach me by my [Linkedin Profile](https://www.linkedin.com/in/tushar-dhakad-1b0678284/)
+
+#### Why you should hire me .
+- Productiveness
+- decition makeing
+- Dedication
